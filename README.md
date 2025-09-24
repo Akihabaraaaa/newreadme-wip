@@ -9,7 +9,7 @@ Thinking or creating a dedicated image.
 > content
 
 ![a](https://64.media.tumblr.com/db79a5e2e9e9ef7f14018f3f391669af/76421fe6284e503c-a2/s500x750/b1b45e41f8951ed103acd3312d19dcb609564de2.pnj)</br>
-　　　　　　　　★ ***001*** ・ ***002*** ・ ***003*** ★
+　　　　　　★ ***001*** ・ ***002*** ・ ***003*** ★
 
 ![a](https://64.media.tumblr.com/0c70d1648eff6400f693baac29c5c3cc/27fc076e6d5bb0ae-18/s1280x1920/d366935c3d7aac1a8451de5225daa689fa81c4ea.pnj)
 
